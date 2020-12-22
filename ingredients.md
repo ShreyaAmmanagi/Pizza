@@ -1,0 +1,3 @@
+Need a pizza base, black olives, chedar cheese, ketchup, tomatoes, black beans,
+origano, chilli flakes, onions, peppers...
+You can add some other toppings too if you want to
